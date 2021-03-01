@@ -1,1 +1,1 @@
-IA, and other work during 2 years in the IBDP
+IA, and other works during 2 years in the IBDP
